@@ -1,0 +1,2 @@
+# lojanova
+não aguento mais
